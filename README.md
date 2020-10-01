@@ -1,2 +1,2 @@
-Meu portifolio basico, ainda estou em construção do mesmo!
-Nele pretendo colocar meus principais projetos..
+Portifolio basico onde apresentarei alguns dos meus principais projetos 
+Breve estarei colocando na net
